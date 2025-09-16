@@ -16,3 +16,4 @@ Odysseus is a multi-sided character in which he depicts himself as a strong warr
 3. Regular people have no place in the poem because they have no `kleos`
 
 ## What is setting?
+`chronotope`: time space - how the setting sets the timeline (past, present, future) and pace of the story. A hyper futuristic metropolis would have fast paced, forward looking lines of thought about civilization and how the government is run, while a book describing the aftermath of a war would have many flashbacks and reminiscing on previous war experiences and camaraderie.   

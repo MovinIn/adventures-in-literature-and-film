@@ -15,5 +15,4 @@ Odysseus is a multi-sided character in which he depicts himself as a strong warr
 2. Adventure is not a way of experiencing the world, but as a public affair; to gain `kleos` (although both might be true, but rather it is not talked about; we never get Odysseus' motives, or his take on his experiences)
 3. Regular people have no place in the poem because they have no `kleos`
 
-## 9/16
-read Yvain: the excerpt and the graphic novel adaptation.
+## What is setting?

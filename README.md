@@ -6,10 +6,12 @@
 ### Terms
 `complicated` - of many turns  
 `kleos` - one's honor, status, social identity, glory.  
+`catabasis` - hell, the underground  
 ### Context
 Odysseus is a king who fought in the Trojan War, far from home, Ithaca. The Odyssey is a poem composed of several books describing the great acts of Odysseus as he travels back home. The way back is depicted as a dangerous road, filled with danger and obstacles which impede his efforts, his yearning and burning desire for home. 
 ### Odysseus' character
 Odysseus is a multi-sided character in which he depicts himself as a strong warrior in the novel of the Odyssey, in which he writes himself. He is a strong, sly, heroic, glorious leader who leads him and his men from an expedition at sea back towards home, Ithaca. We are set into a Greek setting where there are many gods which create problems for Odysseus and his crew, but his crafty and highly strategic nature provides his escape. However, his character is shown to be more complicated, intertwined with many ironic moments and performative actions. Odysseus seems to get himself out of many situations, but he seems to put him and his crew in those situations in the first place. He seems to perform for his crew: in that he motivates his crew through his emotion, but all of the passion seems to be not an outpouring of true heart but as a means for an end. Odysseus wants to be remembered; all of his character seems to be his incessent craving for glory, for `kleos`, if you will. One of the reasons he does this is to assert his capability and competence to run his kingdom when he returns.  
+He needs his adventures to shore up his slippering identity: his kleos is at stake!  
 ### Tone/how the book is told
 1. Language attuned to acts, not to feelings or motives. We rarely see the feelings of Odysseus
 2. Adventure is not a way of experiencing the world, but as a public affair; to gain `kleos` (although both might be true, but rather it is not talked about; we never get Odysseus' motives, or his take on his experiences)
@@ -20,3 +22,18 @@ Odysseus is a multi-sided character in which he depicts himself as a strong warr
 
 ## Medieval - Yvain
 interlacing of plots
+yvain has access to adventures; peasant do not - yet yvain asks the ugly peasant for adventure; and this is how he finds a stone in which he pours water on in order to find adventure (fighting a knight in a storm)  
+the juxtaposition between the outside and inside of the castle: where inside, the chivalrous nature of knights are shown, while outside the chaotic nature of the wilderness filled with dragons and adventure takes place  
+`Redemption` - redeeming one's status after tarnishing it  
+`Vindication` - redeeming one's status that has been tarnished due to external factors  
+Reputation vs Anonymity  
+
+<img width="1217" height="541" alt="image" src="https://github.com/user-attachments/assets/5e9ae01b-d965-4998-8c59-6fb50b028bbe" />
+
+### Medieval "Noble Violence"
+One must go to war, do tournaments; level of courtly love, chivalry.   
+Sets the scene, the understanding of the motivations behind actions, the heart of the story.   
+### Yvain's identity
+He starts off the story as a chivalrous knight, seeking adventure and glory. He chases after his status, showing courtly love to Laudine;   
+He dissolves into madness after failing to show his commitment to Laudine, and Laudine rejects him completely, telling him to never return - he ruins himself, and thus the world around him, for life hinges around him (in King Arthur's court, with Laudine, etc). It seems as if the plot moves as his character changes...  
+The `lion` is important because it represents his sense of changed identity, his sense of pride and status. It has become part of himself? Externalizing honor  

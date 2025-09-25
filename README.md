@@ -36,4 +36,5 @@ Sets the scene, the understanding of the motivations behind actions, the heart o
 ### Yvain's identity
 He starts off the story as a chivalrous knight, seeking adventure and glory. He chases after his status, showing courtly love to Laudine;   
 He dissolves into madness after failing to show his commitment to Laudine, and Laudine rejects him completely, telling him to never return - he ruins himself, and thus the world around him, for life hinges around him (in King Arthur's court, with Laudine, etc). It seems as if the plot moves as his character changes...  
+He then redeems himself after doing many noble deeds, coming to Lunete's rescue by fighting off 3 knights, rescuing the sweatshop and maidens of a castle controlled by two demons; even going so far as to offer up his life for Gawain.   
 The `lion` is important because it represents his sense of changed identity, his sense of pride and status. It has become part of himself? Externalizing honor  

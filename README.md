@@ -38,3 +38,13 @@ He starts off the story as a chivalrous knight, seeking adventure and glory. He 
 He dissolves into madness after failing to show his commitment to Laudine, and Laudine rejects him completely, telling him to never return - he ruins himself, and thus the world around him, for life hinges around him (in King Arthur's court, with Laudine, etc). It seems as if the plot moves as his character changes...  
 He then redeems himself after doing many noble deeds, coming to Lunete's rescue by fighting off 3 knights, rescuing the sweatshop and maidens of a castle controlled by two demons; even going so far as to offer up his life for Gawain.   
 The `lion` is important because it represents his sense of changed identity, his sense of pride and status. It has become part of himself? Externalizing honor  
+
+## Western - Shane
+Shane, Myrian, and Starett - Love Triangle  
+Based on Wyoming  
+The movie is quite symmetrical: 
+1. Shane argues with Joe in the beginning and fights with him at the end
+2. Joey cocks shotgun in front of Shane, Shane gets shot with shotgun at the end (but doesn't die)
+3. Shane emerges from the landscape, shane escapes into the landscape
+The movie brings to question whether Joey will grow up to be like Shane, a gunslinger, or Joe, a hardworking farmer
+

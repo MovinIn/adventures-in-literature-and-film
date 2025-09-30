@@ -47,4 +47,6 @@ The movie is quite symmetrical:
 2. Joey cocks shotgun in front of Shane, Shane gets shot with shotgun at the end (but doesn't die)
 3. Shane emerges from the landscape, shane escapes into the landscape
 The movie brings to question whether Joey will grow up to be like Shane, a gunslinger, or Joe, a hardworking farmer
+Violence is used as a form of reconciliation, to settle matters
+Shane's past as a gunslinger makes him some sort of a ghost, who understands the value of life and the weight of death. (same with Wilson)
 

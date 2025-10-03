@@ -50,3 +50,11 @@ The movie brings to question whether Joey will grow up to be like Shane, a gunsl
 Violence is used as a form of reconciliation, to settle matters
 Shane's past as a gunslinger makes him some sort of a ghost, who understands the value of life and the weight of death. (same with Wilson)
 
+## On the Eve of Modernity
+Robinson Cruso  
+`formal realism`:   
+1. Claims to authenticity: blurring fact and fiction. To make fiction feel like an authentic report of everyday life.
+2. Rejection of conventional plots
+3. Individualism
+4. Specify temporal and spatial aspects
+5. Specify Causality: Things must happen for a reason. 

@@ -52,9 +52,18 @@ Shane's past as a gunslinger makes him some sort of a ghost, who understands the
 
 ## On the Eve of Modernity
 Robinson Cruso  
+### Terms
 `formal realism`:   
 1. Claims to authenticity: blurring fact and fiction. To make fiction feel like an authentic report of everyday life.
 2. Rejection of conventional plots
 3. Individualism
 4. Specify temporal and spatial aspects
-5. Specify Causality: Things must happen for a reason. 
+5. Specify Causality: Things must happen for a reason.
+### Plot
+1. Grew up in a middle class family: Father does not want Robinson to leave. He wants him to stay at home where it is safe, where he can enjoy the luxury of life. He says to Robinson so profusely. Robinson is deterred for a few weeks or so, but his drive for adventure at sea entices him so much that he leaves without his parents' consent - for neither his mother nor his father would grant him any such thing.
+2. Robinson then sailed to sea: the first two times he was nearly swamped. As it were, mountains of water towered over the ship, in which the crew had to chop off the masts in order to stay afloat.
+3. Robinson then garnered his own crew and decided to sail out for adventure; however, he was captured by `Moors` (Pirates) and spent two years in captivity. He escaped because he was a fisherman, taking a ship out to sea and throwing off his `Moor` supervisor. He and `Xury` then set off to sail for adventure themselves, freeing themselves from the Pirates.
+4. Robinson sails to the island of the Negroes, where he stocks up on corn and water. He kills a few creatures on his way for skin.
+5. He is taken in by some European boat. This boat drops him off in Brazil. The captain buys everything he has, giving Robinson a huge fortune. He sells Xury, who wanted to be a seafarer with the Captain as well.
+6. He now controls a plantation in Brazil and lives on it for 4 years. If he learned his lesson, he would have stayed: yet his yearning for adventure and sea pushed him to embark on a mission to be able to secretly transport Negroes for their plantations (his and his friends').
+7. This voyage goes very poorly, leaving him stranded on a random island far away from Brazil and far away from his comfort based on his Brazil plantation. 

@@ -79,4 +79,5 @@ Robinson Cruso
 8. He gets ill.
 9. Sees a vision: 'Seeing all these Things have not brought thee to Repentance, now thou shalt die'
 10. Starts to become more and more Christian, referring back to the Bible and living by faith not by sight.
-11. Finds `Friday`, who is considered a "savage" that can speak English. He delights in Friday, because he has found someone to speak to. 
+11. Finds `Friday`, who is considered a "savage" that can speak English. He delights in Friday, because he has found someone to speak to.
+`avintiure trade` - merchants set out with goods without knowing if there is a market out there for his goods.  

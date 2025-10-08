@@ -80,4 +80,10 @@ Robinson Cruso
 9. Sees a vision: 'Seeing all these Things have not brought thee to Repentance, now thou shalt die'
 10. Starts to become more and more Christian, referring back to the Bible and living by faith not by sight.
 11. Finds `Friday`, who is considered a "savage" that can speak English. He delights in Friday, because he has found someone to speak to.
-`avintiure trade` - merchants set out with goods without knowing if there is a market out there for his goods.  
+`avintiure trade` - merchants set out with goods without knowing if there is a market out there for his goods.
+### Intuition
+Robinson Crusoe is not an adventurous person, but many misfortunes happen and he is forced into adventure due to his drive for money 
+Absence of sexuality  
+Crusoe only sees social bonding as a means for buisiness, or money; to use contracts as ways for advancement. He only sees people as buisness friends or commodities.   
+Crusoe has a hyper-individual personality, in which he is super self seeking and only cares for himself  
+

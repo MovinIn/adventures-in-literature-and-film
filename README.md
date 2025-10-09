@@ -86,4 +86,11 @@ Robinson Crusoe is not an adventurous person, but many misfortunes happen and he
 Absence of sexuality  
 Crusoe only sees social bonding as a means for buisiness, or money; to use contracts as ways for advancement. He only sees people as buisness friends or commodities.   
 Crusoe has a hyper-individual personality, in which he is super self seeking and only cares for himself  
+Robinson Crusoe seems to be very critical about society.   
+Robinson Crusoe is a very unconventional adventure story in that there doesn't exist many typical adventure elements, like the desire to explore; rather, Crusoe is put into adventure scenes in which he does not want to be in - he seems to be thrown into the fire without his consent.  
 
+How does Virginia Woolf read Robinson Crusoe?
+1. Thinks of it as repetitive and there is no emotions or soul within the story.
+2. Crusoe is very pragmatic and cuts across all of the emotional turmoil and reaction that should be present in the story.
+### Terms
+`Colonialism`: a practice of domination which involves the subjugation of one pepole to another by conquest and control of one of these groups' lands and resources.   

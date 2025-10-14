@@ -6,7 +6,7 @@
 ### Terms
 `complicated` - of many turns  
 `kleos` - one's honor, status, social identity, glory.  
-`catabasis` - hell, the underground  
+`katabasis` - hell, the underground  
 ### Context
 Odysseus is a king who fought in the Trojan War, far from home, Ithaca. The Odyssey is a poem composed of several books describing the great acts of Odysseus as he travels back home. The way back is depicted as a dangerous road, filled with danger and obstacles which impede his efforts, his yearning and burning desire for home. 
 ### Odysseus' character

@@ -94,3 +94,12 @@ How does Virginia Woolf read Robinson Crusoe?
 2. Crusoe is very pragmatic and cuts across all of the emotional turmoil and reaction that should be present in the story.
 ### Terms
 `Colonialism`: a practice of domination which involves the subjugation of one pepole to another by conquest and control of one of these groups' lands and resources.   
+### Cast Away
+1. He needs his clock and Wilson (volleyball) for someone to talk to and have connection. His mental state has deteriorated.
+2. 
+#### Significance of Time in Cast Away
+Makes events go faster or slower  
+1. The main character is always fixated on time. (Chuck). 
+2. Time connects Chuck with fiancee - he needs to dedicate time to those he loves in order to get engaged, get married, have a family, etc.
+3. Time is very important in capitalism
+4. Time is anxiety - Chuck doesn't want to run time. 

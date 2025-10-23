@@ -95,6 +95,10 @@ How does Virginia Woolf read Robinson Crusoe?
 ### Terms
 `Colonialism`: a practice of domination which involves the subjugation of one pepole to another by conquest and control of one of these groups' lands and resources.   
 ### Cast Away
+#### Terms
+`Modernity`: the condition of being modern. A set of cultural, political, economic, and spatial relationships that influence the nature of social life, the economy, and experience of time and space. 
+Thinking about industrial matters. Going from farming and a peaceful life to having new problems spring up from the new modern way of life. 
+#### Plot
 1. He needs his clock and Wilson (volleyball) for someone to talk to and have connection. His mental state has deteriorated.
 2. 
 #### Significance of Time in Cast Away
@@ -103,3 +107,5 @@ Makes events go faster or slower
 2. Time connects Chuck with fiancee - he needs to dedicate time to those he loves in order to get engaged, get married, have a family, etc.
 3. Time is very important in capitalism
 4. Time is anxiety - Chuck doesn't want to run time. 
+### Around the World in 80 Days
+Traveling around the world from `SF => NY => London => Suez => Bombay => Calcutta => Hong Kong => Yokohama`.   

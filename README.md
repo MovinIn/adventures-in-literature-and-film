@@ -99,11 +99,19 @@ How does Virginia Woolf read Robinson Crusoe?
 `Modernity`: the condition of being modern. A set of cultural, political, economic, and spatial relationships that influence the nature of social life, the economy, and experience of time and space. 
 Thinking about industrial matters. Going from farming and a peaceful life to having new problems spring up from the new modern way of life. 
 #### Plot
-1. He needs his clock and Wilson (volleyball) for someone to talk to and have connection. His mental state has deteriorated.
-2. 
+1. Worked as a FedEx manager. Time controls his world. He wants to work more than spend time with his fiancee, Kelly.
+2. Chuck goes on a plane flight away from Kelly that crash lands in the sea. He uses a life raft to get to an uninhabited island.
+3. There he spends the rest of 4-5 whole years away from civilization. He builds a house, makes fire, learns to get water from coconuts, cooks fish, crab, etc. He pulls out a tooth and faints from pain. 
+4. He needs Wilson (a volleyball from a FedEx package) for someone to talk to and have connection. His mental state has deteriorated.
+5. He eventually builds a raft and escapes the island. He meets with Kelly and realizes that he lost her.
+6. He is now lost and doesn't know where to go. He sees the angel wings on the back of the truck at a crossroads and smiles, deciding to go down the path that the angel wings went.
+#### Significance of Symbolic Objects
+1. Angel Wings - the hope that Chuck will escape and delivered from the island.
+2. Wilson - a desire for friendship and connection with other humans.
+3. Clock - the fact that Chuck needs to get back home fast or else he will lose Kelly.
 #### Significance of Time in Cast Away
 Makes events go faster or slower  
-1. The main character is always fixated on time. (Chuck). 
+1. The main character is always fixated on time. Time controls Chuck's world. 
 2. Time connects Chuck with fiancee - he needs to dedicate time to those he loves in order to get engaged, get married, have a family, etc.
 3. Time is very important in capitalism
 4. Time is anxiety - Chuck doesn't want to run time. 

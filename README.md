@@ -117,3 +117,17 @@ Makes events go faster or slower
 4. Time is anxiety - Chuck doesn't want to run time. 
 ### Around the World in 80 Days
 Traveling around the world from `SF => NY => London => Suez => Bombay => Calcutta => Hong Kong => Yokohama`.   
+The concept of Time
+#### Plot
+1. Phileas Fogg is a mechanical robot almost, always mapping his action to the passing of time. He wastes no extra movement and always sticks to his schedule.
+2. Phileas Fogg hires Passepartout, who is planning on living a quiet life forever. Passepartout believes that he has found the jackpot: Fogg, his master, never does anything spontaneous or out of the ordinary.
+4. Phileas Fogg then goes and plays whist with members in the Reform Club; who, in fact, entice Fogg on an adventure around the world in 80 days with a 20,000 pound bet. 
+#### Time
+1. Time as a commodity: time is money.
+2. The loss of meaning in traveling; Fogg simply wants to go to places as fast as possible. He is the worst type of tourist.
+3. It is a goal.
+4. It can be used as an organizational tool (Philias Fogg uses a log)
+5. Conflict/Units: time controls the blueprint of conflict.
+6. Pace of the story: Robinson Crusoe is a grueling reading experience. Around the world in 80 days is a fast paced read!
+#### Terms
+Transience: lasting for only a short amount of time. 

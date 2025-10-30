@@ -131,3 +131,8 @@ The concept of Time
 6. Pace of the story: Robinson Crusoe is a grueling reading experience. Around the world in 80 days is a fast paced read!
 #### Terms
 Transience: lasting for only a short amount of time. 
+#### Fogg as a character
+1. He has no curiosity
+2. He makes no extra movements. He is robotic.
+3. He lives in his own world: "he was following his own rational orbit around the world, without bothering at all about the asteroids gravitating around him."
+4. He is time centric. 

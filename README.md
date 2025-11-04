@@ -121,7 +121,16 @@ The concept of Time
 #### Plot
 1. Phileas Fogg is a mechanical robot almost, always mapping his action to the passing of time. He wastes no extra movement and always sticks to his schedule.
 2. Phileas Fogg hires Passepartout, who is planning on living a quiet life forever. Passepartout believes that he has found the jackpot: Fogg, his master, never does anything spontaneous or out of the ordinary.
-4. Phileas Fogg then goes and plays whist with members in the Reform Club; who, in fact, entice Fogg on an adventure around the world in 80 days with a 20,000 pound bet. 
+4. Phileas Fogg then goes and plays whist with members in the Reform Club; who, in fact, entice Fogg on an adventure around the world in 80 days with a 20,000 pound bet.
+5. The adventures: hops from train to train; Fix joins the chase, a police officer who believes Fogg was the one who stole the 55,000 pounds from the bank.
+6. Fogg cares nothing about tourism, and cares nothing about sightseeing. He gains a little bit of time by train-hopping.
+7. Fogg is then stopped by an unfinished railroad track; and he must proceed on foot. However, he gets a hold of an elephant (bought out by his wealth) and uses it to try to get to the next city.
+8. Fogg encounters a Hindu tribe that tries to sacrifice Aouda, an Indian princess without her consent. He and the gang rescue Aouda with Passepartout's boldness and help, sneaking through the smoke and fleeing using the elephant.
+9. Time skip in chapters. Fogg is on another train, speeding down to Britain. Fix desparately wants him also to get to Britain as fast as possible in order to arrest him there.
+10. The bridge is unsafe; yet, the train speeds along 100mph in order to get through to the other side, demolishing what remained of the unstable bridge.
+11. They are jumped by a native tribe: Sioux Indians, that capture 3 passengers, including Passepartout. Fogg rescues them while Fix and Aouda wait for his arrival. He is now behind 8 hours.
+12. They go on a sled to try to catch the next train as fast as possible.
+13. They reach the train, but miss the China ship by 45 minutes. He then grabs another ship, the Henrietta, and burns the masts and deck to quickly get to Liverpool. However, he arrives 5 minutes late thinking that he has lost. However! He traveled eastward, and thereby gaining a day; winning the bet. He marries Aouda, and all is well. 
 #### Time
 1. Time as a commodity: time is money.
 2. The loss of meaning in traveling; Fogg simply wants to go to places as fast as possible. He is the worst type of tourist.

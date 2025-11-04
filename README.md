@@ -145,5 +145,11 @@ Transience: lasting for only a short amount of time.
 2. He makes no extra movements. He is robotic.
 3. He lives in his own world: "he was following his own rational orbit around the world, without bothering at all about the asteroids gravitating around him."
 4. He is time centric.
+### Raiders of the Lost Ark
+1. Restored Holywood during a recession; shows that you can make big block busters. 
+2. Indiana Jones is a hero and an adventurer. He is a hero because he is morally upright, in that he wants to stop the Nazis from securing the Ark; he also wants to give away artifacts to the museum. However, he is also an adventurer: he
+3. Indiana Jones: has non-traiditional gender roles: when not adventuring, he is a nerd and enjoys being a professor. However, in the plot she is a great adventurer and hero. 
+4. Marion: has non-traditional gender roles: is tougher and has many masculine attributes. However, she is forced in the plot as a damsel in distress.
+5. 
 ### Term Test 2
 Cast Away, Around the world in 80 days, Raiders of the Lost Ark, Robinson Crusoe

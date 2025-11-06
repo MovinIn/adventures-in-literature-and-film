@@ -153,3 +153,16 @@ Transience: lasting for only a short amount of time.
 5. 
 ### Term Test 2
 Cast Away, Around the world in 80 days, Raiders of the Lost Ark, Robinson Crusoe
+Robinsonade - people stranded in isolation: Robinson Crusoe, Cast away
+Chuck Noland is a real adventurer - he is not afraid of doing what it takes; he knows what is best and does it (aka. knocking out that tooth!)
+How Chuck's identity changed: Understanding that efficiency isn't everything; ability to understand that time is something to be cherished, not to be rushed through.   
+Around the world in 80 days
+serialization - sending out a large novel in chunks  
+Around the world: accounting for time 
+There is going to be a question about importance of time in cast away vs around the world: 
+Similarities: efficiency
+Differences: living day by day as time passes (fogg does not do sightseeing), but in cast away, Chuck seems to take time as important, but cherishes time more on the island now; does not take a look into efficiency.   
+As shown through the angel wings, we can see that he does not have any direction, but knows he can do things not as fast as he used to without everything going to shreds. 
+##### Raiders of the Lost Ark
+Metafictional: the ark; 
+

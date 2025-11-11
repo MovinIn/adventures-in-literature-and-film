@@ -165,4 +165,13 @@ Differences: living day by day as time passes (fogg does not do sightseeing), bu
 As shown through the angel wings, we can see that he does not have any direction, but knows he can do things not as fast as he used to without everything going to shreds. 
 ##### Raiders of the Lost Ark
 Metafictional: the ark; 
-
+### Flights
+Constellations - the author does not force the reader to piece together the puzzles; the perspective changes all over the work.   
+#### Branko
+1. interpreter; interprets what Kunicki is trying to say to the police  
+#### Kanicki
+1. person who lost his wife and son; currently searching Poland with Branko and the police
+#### Unknown Female Narrator
+1. unknown female narrator who ponders about travel, time, etc. She frequently travels. She connects all of these different events she has encountered in not linear time.
+2. She is drawn to dead matter and imperfect forms.
+3. She studied psychology

@@ -178,4 +178,9 @@ Constellations - the author does not force the reader to piece together the puzz
 #### Poetics of postmodernism
 Fragmentation: Escaping a unified and organized narrative for the sake of multiplicity of episodes, perspectives, etc.  
 Metafiction/Self-referentiality: Drawing attention to the artificiality of literature and its conventions. Breaking of the 4th wall. Characters who realize they are in a work of fiction. Blurring the lines between fact and fiction, reality and myth, truth and lying, etc.   
-
+#### Themes
+1. Movement achieves freedom
+2. The refusal to conform
+3. The dark underside
+4. The human body
+5. Pressures

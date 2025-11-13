@@ -177,4 +177,5 @@ Constellations - the author does not force the reader to piece together the puzz
 3. She studied psychology
 #### Poetics of postmodernism
 Fragmentation: Escaping a unified and organized narrative for the sake of multiplicity of episodes, perspectives, etc.  
-Metafiction/Self-referentiality: Drawing attention to the artificiality of literature and its conventions.  
+Metafiction/Self-referentiality: Drawing attention to the artificiality of literature and its conventions. Breaking of the 4th wall. Characters who realize they are in a work of fiction. Blurring the lines between fact and fiction, reality and myth, truth and lying, etc.   
+

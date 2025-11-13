@@ -175,3 +175,6 @@ Constellations - the author does not force the reader to piece together the puzz
 1. unknown female narrator who ponders about travel, time, etc. She frequently travels. She connects all of these different events she has encountered in not linear time.
 2. She is drawn to dead matter and imperfect forms.
 3. She studied psychology
+#### Poetics of postmodernism
+Fragmentation: Escaping a unified and organized narrative for the sake of multiplicity of episodes, perspectives, etc.  
+Metafiction/Self-referentiality: Drawing attention to the artificiality of literature and its conventions.  

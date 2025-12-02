@@ -184,3 +184,8 @@ Metafiction/Self-referentiality: Drawing attention to the artificiality of liter
 3. The dark underside
 4. The human body
 5. Pressures
+### Rabbit-Proof Fence
+#### Themes
+Themes of Oppression, resistance, control, imprisionment, connection, protection, division  
+Role of Gender  
+
